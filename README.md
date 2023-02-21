@@ -4,12 +4,12 @@
 ## Reuters 02-16-2023
 https://www.reuters.com/world/us/us-republicans-target-transgender-youth-healthcare-legislative-push-2023-02-16/
 ### Picked up by
-https://www.msn.com/en-us/news/us/over-300-anti-lgbtq-bills-have-already-been-filed-in-2023/ar-AA17q8Me
-https://www.xm.com/research/markets/allNews/reuters/us-republicans-target-transgender-youth-healthcare-in-legislative-push-53211554
-https://breakingnewsworlds.com/u-s-republicans-target-transgender-youth-healthcare-in-legislative-push-breaking-news-today-29586.html
-https://www.nasdaq.com/articles/u.s.-republicans-target-transgender-youth-healthcare-in-legislative-push
-https://gazette.com/republicans-target-transgender-youth-healthcare-in-legislative-push/article_dc6dadca-ae4f-11ed-bd03-1bb6d02662f3.html
-https://www.nbcrightnow.com/news/u-s-republicans-target-transgender-youth-health-care-in-legislative-push/article_f65542de-ae68-11ed-9f71-978e5823bce4.html
+https://www.msn.com/en-us/news/us/over-300-anti-lgbtq-bills-have-already-been-filed-in-2023/ar-AA17q8Me \n
+https://www.xm.com/research/markets/allNews/reuters/us-republicans-target-transgender-youth-healthcare-in-legislative-push-53211554 \n
+https://breakingnewsworlds.com/u-s-republicans-target-transgender-youth-healthcare-in-legislative-push-breaking-news-today-29586.html \n
+https://www.nasdaq.com/articles/u.s.-republicans-target-transgender-youth-healthcare-in-legislative-push \n
+https://gazette.com/republicans-target-transgender-youth-healthcare-in-legislative-push/article_dc6dadca-ae4f-11ed-bd03-1bb6d02662f3.html \n
+https://www.nbcrightnow.com/news/u-s-republicans-target-transgender-youth-health-care-in-legislative-push/article_f65542de-ae68-11ed-9f71-978e5823bce4.html \n
 https://www.nbcnews.com/nbc-out/out-news/us-republicans-target-transgender-youth-health-care-legislative-push-rcna70988
 
 ## PinkNews 02-15-2023
