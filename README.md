@@ -8,6 +8,9 @@ https://www.msn.com/en-us/news/us/over-300-anti-lgbtq-bills-have-already-been-fi
 https://www.xm.com/research/markets/allNews/reuters/us-republicans-target-transgender-youth-healthcare-in-legislative-push-53211554
 https://breakingnewsworlds.com/u-s-republicans-target-transgender-youth-healthcare-in-legislative-push-breaking-news-today-29586.html
 https://www.nasdaq.com/articles/u.s.-republicans-target-transgender-youth-healthcare-in-legislative-push
+https://gazette.com/republicans-target-transgender-youth-healthcare-in-legislative-push/article_dc6dadca-ae4f-11ed-bd03-1bb6d02662f3.html
+https://www.nbcrightnow.com/news/u-s-republicans-target-transgender-youth-health-care-in-legislative-push/article_f65542de-ae68-11ed-9f71-978e5823bce4.html
+https://www.nbcnews.com/nbc-out/out-news/us-republicans-target-transgender-youth-health-care-legislative-push-rcna70988
 
 ## PinkNews 02-15-2023
 https://www.thepinknews.com/2023/02/15/senator-matt-mckee-asks-if-trans-doctor-has-a-penis/
