@@ -3,7 +3,7 @@
 ## New Republic 02-24-2023
 https://newrepublic.com/article/170738/republican-rightwing-anti-trans-dog-and-pony-show
 
-## ABC & CBS 02-23-2023
+## ABC/CBS/Fox Nation Desk 02-23-2023
 https://wlos.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
 https://local21news.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
 https://wtov9.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
