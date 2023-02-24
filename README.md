@@ -1,5 +1,27 @@
 # Alli In The Press
 
+## New Republic 02-24-2023
+https://newrepublic.com/article/170738/republican-rightwing-anti-trans-dog-and-pony-show
+
+## ABC & CBS 02-23-2023
+https://wlos.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://local21news.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://wtov9.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://cbs12.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://klewtv.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://kpic.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://fox56.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://wcti12.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://idahonews.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://13wham.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://ktvo.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://fox42kptm.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://wset.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+https://kutv.com/news/nation-world/tennessee-bills-on-drag-performances-trans-surgeries-for-minors-could-soon-be-law
+
+## KXAN 02-22-2023
+https://www.kxan.com/news/texas-politics/texas-senate-bill-aims-to-restrict-access-to-gender-affirming-care-allow-malpractice-lawsuits-for-care/
+https://localtoday.news/tx/cedric-marks-jury-selection-begins-on-man-accused-of-murdering-austin-friends-and-escapes-police-custody-175502.html
 
 ## Reuters 02-16-2023
 https://www.reuters.com/world/us/us-republicans-target-transgender-youth-healthcare-legislative-push-2023-02-16/
@@ -11,6 +33,8 @@ https://www.nasdaq.com/articles/u.s.-republicans-target-transgender-youth-health
 https://gazette.com/republicans-target-transgender-youth-healthcare-in-legislative-push/article_dc6dadca-ae4f-11ed-bd03-1bb6d02662f3.html
 https://www.nbcrightnow.com/news/u-s-republicans-target-transgender-youth-health-care-in-legislative-push/article_f65542de-ae68-11ed-9f71-978e5823bce4.html
 https://www.nbcnews.com/nbc-out/out-news/us-republicans-target-transgender-youth-health-care-legislative-push-rcna70988
+https://www.usnews.com/news/top-news/articles/2023-02-16/u-s-republicans-target-transgender-youth-healthcare-in-legislative-push
+https://www.citizen.digital/news/us-republicans-target-transgender-youth-healthcare-in-legislative-push-n314526
 
 ## PinkNews 02-15-2023
 https://www.thepinknews.com/2023/02/15/senator-matt-mckee-asks-if-trans-doctor-has-a-penis/
