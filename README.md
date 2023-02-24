@@ -1,5 +1,8 @@
 # Alli In The Press
 
+## GCN 02-24-2023
+https://gcn.ie/tennessee-ban-drag-shows/
+
 ## New Republic 02-24-2023
 https://newrepublic.com/article/170738/republican-rightwing-anti-trans-dog-and-pony-show
 
