@@ -1,5 +1,11 @@
 # Alli In The Press
 
+## Them.US 02-24-2023
+https://www.them.us/story/tennesee-drag-ban-trans-minors-health-care-bills-head-to-governor
+
+## Daily Citizen (Negative Article) 02-24-2023
+https://dailycitizen.focusonthefamily.com/tennessee-passes-bill-banning-drag-shows-in-presence-of-minors/
+
 ## GCN 02-24-2023
 https://gcn.ie/tennessee-ban-drag-shows/
 
