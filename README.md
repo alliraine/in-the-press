@@ -1,5 +1,11 @@
 # Alli In The Press
 
+## Washington Post 02-28-2023
+https://www.washingtonpost.com/nation/2023/02/28/anti-trans-bills-gender-affirming-care-adults/
+
+## Them.US 02-28-2023
+https://www.them.us/story/bill-lee-drag-photo-tennessee
+
 ## Them.US 02-24-2023
 https://www.them.us/story/tennesee-drag-ban-trans-minors-health-care-bills-head-to-governor
 
