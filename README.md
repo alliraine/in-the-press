@@ -1,5 +1,8 @@
 # Alli In The Press
 
+## Them.US 03-01-2023
+https://www.them.us/story/jaycee-cooper-powerlifter-lawsuit
+
 ## Washington Post 02-28-2023
 https://www.washingtonpost.com/nation/2023/02/28/anti-trans-bills-gender-affirming-care-adults/
 
