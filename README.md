@@ -1,5 +1,8 @@
 # Alli In The Press
 
+## Them.US 03-03-2023
+https://www.them.us/story/iowa-we-say-gay-student-walkout
+
 ## Them.US 03-01-2023
 https://www.them.us/story/jaycee-cooper-powerlifter-lawsuit
 
