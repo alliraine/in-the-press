@@ -1,5 +1,9 @@
 # Alli In The Press
 
+## The Hill 03-07-2023
+https://thehill.com/homenews/state-watch/3888184-tennessee-house-passes-second-bill-to-restrict-drag-performances/
+https://news.yahoo.com/tennessee-house-passes-second-bill-185441896.html
+
 ## Them.US 03-03-2023
 https://www.them.us/story/iowa-we-say-gay-student-walkout
 
