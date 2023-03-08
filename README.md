@@ -1,5 +1,14 @@
 # Alli In The Press
 
+## The Hill 03-08-2023
+https://thehill.com/newsletters/morning-report/3889366-the-hills-morning-report-fed-chairman-job-losses-very-likely/
+
+## The New Republic 03-07-2023
+https://newrepublic.com/post/171025/tennessee-house-bill-gutting-marriage-equality
+
+## NewsMax 03-07-2023
+https://www.newsmax.com/amp/newsfront/tennessee-drag-show-adult-cabaret/2023/03/07/id/1111485/
+
 ## The Hill 03-07-2023
 https://thehill.com/homenews/state-watch/3888184-tennessee-house-passes-second-bill-to-restrict-drag-performances/
 https://news.yahoo.com/tennessee-house-passes-second-bill-185441896.html
