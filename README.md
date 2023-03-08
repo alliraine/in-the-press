@@ -1,5 +1,8 @@
 # Alli In The Press
 
+## DailyKos 03-08-2023
+https://www.dailykos.com/stories/2023/3/8/2156904/-Tennessee-passes-bill-allowing-courts-to-refuse-to-marry-same-sex-mixed-race-transgender-couples
+
 ## The Hill 03-08-2023
 https://thehill.com/newsletters/morning-report/3889366-the-hills-morning-report-fed-chairman-job-losses-very-likely/
 
