@@ -1,5 +1,9 @@
 # Alli In The Press
 
+
+## TruthOut 03-08-2023
+https://truthout.org/articles/arkansas-senate-passes-most-extreme-anti-trans-bathroom-bill-in-the-u-s/
+
 ## DailyKos 03-08-2023
 https://www.dailykos.com/stories/2023/3/8/2156904/-Tennessee-passes-bill-allowing-courts-to-refuse-to-marry-same-sex-mixed-race-transgender-couples
 
