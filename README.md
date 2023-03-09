@@ -1,5 +1,7 @@
 # Alli In The Press
 
+## Politifact 03-08-2023
+https://www.politifact.com/article/2023/mar/08/does-tennessees-new-drag-law-make-it-illegal-to-be/
 
 ## TruthOut 03-08-2023
 https://truthout.org/articles/arkansas-senate-passes-most-extreme-anti-trans-bathroom-bill-in-the-u-s/
