@@ -1,5 +1,8 @@
 # Alli In The Press
 
+## Texas Observer 03-16-2023
+https://www.texasobserver.org/i-am-a-trans-texan/
+
 ## Politifact 03-08-2023
 https://www.politifact.com/article/2023/mar/08/does-tennessees-new-drag-law-make-it-illegal-to-be/
 
@@ -24,6 +27,9 @@ https://news.yahoo.com/tennessee-house-passes-second-bill-185441896.html
 
 ## Them.US 03-03-2023
 https://www.them.us/story/iowa-we-say-gay-student-walkout
+
+## New Thinking 03-02-2023
+https://www.newthinking.com/politics/the-uphill-battle-of-being-a-transgender-woman-in-america
 
 ## Them.US 03-01-2023
 https://www.them.us/story/jaycee-cooper-powerlifter-lawsuit
