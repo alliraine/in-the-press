@@ -1,5 +1,16 @@
 # Alli In The Press
 
+## The Hill 03-31-2023
+https://thehill.com/homenews/state-watch/3927744-trans-day-of-visibility-hope-amid-record-breaking-targeting-of-rights/
+### Picked Up By
+https://myfox8.com/news/politics/trans-day-of-visibility-hope-amid-record-breaking-targeting-of-rights/
+
+## Them.US 03-28-2023
+https://www.them.us/story/lgbtq-queer-youth-assemble-march-trans-day-visibility
+
+## Them.US 03-27-2023
+https://www.them.us/story/madonna-tennessee-tour-date-trans-rights
+
 ## Texas Observer 03-16-2023
 https://www.texasobserver.org/i-am-a-trans-texan/
 
