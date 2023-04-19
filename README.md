@@ -1,5 +1,11 @@
 # Alli In The Press
 
+## Truthout 04-18-2023
+https://truthout.org/articles/over-400-transphobic-bills-have-been-proposed-since-the-start-of-2023/
+
+## Contrapoints 04-18-2023
+https://www.youtube.com/watch?v=EmT0i0xG6zg
+
 ## The Hill 03-31-2023
 https://thehill.com/homenews/state-watch/3927744-trans-day-of-visibility-hope-amid-record-breaking-targeting-of-rights/
 ### Picked Up By
