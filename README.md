@@ -6,6 +6,9 @@ https://truthout.org/articles/over-400-transphobic-bills-have-been-proposed-sinc
 ## Contrapoints 04-18-2023
 https://www.youtube.com/watch?v=EmT0i0xG6zg
 
+## Salon 04-07-2023
+https://www.salon.com/2023/04/07/kansas-ban-on-trans-athletes-could-include-genital-inspection-critics-say_partner/
+
 ## The Hill 03-31-2023
 https://thehill.com/homenews/state-watch/3927744-trans-day-of-visibility-hope-amid-record-breaking-targeting-of-rights/
 ### Picked Up By
