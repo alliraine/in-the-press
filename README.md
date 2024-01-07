@@ -1,4 +1,4 @@
-# Alli In The Press
+# Allison In The Press
 
 ## Indiana NPR/PBS 07-11-2023
 https://www.wfyi.org/news/articles/why-social-conservative-backlash-made-indiana-the-right-state-for-anti-lgbtq-bills
