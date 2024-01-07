@@ -1,5 +1,22 @@
 # Alli In The Press
 
+## Indiana NPR/PBS 07-11-2023
+https://www.wfyi.org/news/articles/why-social-conservative-backlash-made-indiana-the-right-state-for-anti-lgbtq-bills
+
+## Indiana NPR/PBS 07-10-2023
+https://www.wfyi.org/news/articles/indianas-slate-of-anti-lgbtq-bills-part-of-national-fight-over-2020-supreme-court-decision
+
+## Openly/Reuters 05-09-2023
+https://www.openlynews.com/i/?id=0c73716b-80f7-497b-a875-5f95b5c0a5e8
+### Reposted by GayTimes 05-09-2023
+https://www.gaytimes.co.uk/life/what-you-need-to-know-about-bills-restricting-transgender-rights-in-the-us/
+
+## Truthout 05-05-2023
+https://truthout.org/articles/indiana-governor-signs-bill-requiring-teachers-to-out-trans-students-to-parents/
+
+## Truthout 05-03-2023
+https://truthout.org/articles/iowa-trans-teen-receiving-award-from-gov-shouts-trans-rights-are-human-rights/
+
 ## Truthout 04-18-2023
 https://truthout.org/articles/over-400-transphobic-bills-have-been-proposed-since-the-start-of-2023/
 
